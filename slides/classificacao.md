@@ -27,3 +27,9 @@ O **passado** permite a determinação de tendências, já o **presente** é tid
 
 
 ![a09fig03](./assets/a09fig03.jpg)
+
+
+### O **incentivo** pode MAXIMIZAR uma **oportunidade**, mas uma **restrição** pode minimizá-la.
+
+
+### Uma **ameaça** para uma organização pode ser uma **oportunidade** para outra.
